@@ -489,10 +489,32 @@ Un individu fiché S pour islamisme radical a attaqué plusieurs passants non lo
 
 Source: https://www.lejdd.fr/societe/attentat-de-bir-hakeim-le-suspect-franco-iranien-dechu-de-sa-nationalite-francaise-150234
 
+<br>
+
+## **2024**
+
+### 90. 16/07/2024
+Ali Riza Polat, condamné pour complicité dans les attentats de janvier 2015 contre Charlie Hebdo et l’Hyper Cacher, aurait attaqué deux surveillants de la prison de Laon (Aisne) ce mardi 16 juillet 2024. L’un des agents a été légèrement blessé. Une enquête a été ouverte.
+
+Source: https://www.ouest-france.fr/societe/faits-divers/un-detenu-condamne-pour-les-attentats-de-2015-aurait-agresse-des-surveillants-a-la-prison-de-laon-b045bdd4-4375-11ef-a553-79592a855fb7
+
+### 91. 16/07/2024
+Un homme connu pour sa radicalisation islamiste mis en examen et écroué pour l’agression d’un chauffeur de taxi près du Mans
+L’homme, qui sortait de prison, a été mis en examen pour enlèvement, séquestration, tentative d’assassinat, vol, le tout en relation avec une entreprise terroriste, et association de malfaiteurs terroriste criminelle.
+
+Source: https://www.lemonde.fr/societe/article/2024/07/23/un-suspect-radicalise-mis-en-examen-et-ecroue-pour-l-agression-d-un-chauffeur-de-taxi-pres-du-mans_6255997_3224.html
+
+### 92. 24/08/2024
+La Grande-Motte : le suspect de l’attentat devant la synagogue a été interpellé après un échange de tirs avec la police à Nîmes
+Un Algérien de 33 ans a été arrêté par les policiers, notamment du RAID, à l’issue d’échanges de tirs, selon le PNAT. Quatre personnes sont actuellement en garde à vue dans cette affaire.
+
+Source: https://www.lemonde.fr/societe/article/2024/08/25/la-grande-motte-le-suspect-de-l-explosion-devant-la-synagogue-a-ete-interpelle-a-nimes_6293689_3224.html#:~:text=Un%20policier%20municipal%20blessé%20par,donnant%20accès%20à%20l'édifice.
+
+<br>
 
 ## **2025**
 
-### 90. 25/01/2025
+### 93. 25/01/2025
 Le 25 janvier : Attaque du 25 janvier 2025 à Apt
 Un individu fiché S pour islamisme radical a attaqué au couteau plusieurs personnes dans un centre commercial a Apt, faisant deux blessés. Le parquet national antiterroriste est saisi.
 
