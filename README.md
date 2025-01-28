@@ -447,7 +447,7 @@ Dans le centre-ville, avant 17h40 dans une avenue proche du Stade olympique Yves
 
 Source: https://www.lemonde.fr/societe/article/2024/03/15/attentat-a-la-voiture-belier-contre-des-policiers-a-colombes-youssef-tihlah-condamne-a-24-ans-de-reclusion_6222244_3224.html#:~:text=Justice-,Attentat%20%C3%A0%20la%20voiture%20b%C3%A9lier%20contre%20des%20policiers%20%C3%A0%20Colombes,motards%20avaient%20%C3%A9t%C3%A9%20gri%C3%A8vement%20bless%C3%A9s.
 
-### 83. 04/05/2020
+### 83. 05/05/2020
 Dans la nuit du 4 au 5 mai 2017, peu après minuit, un véhicule suspect est repéré à proximité de la base aérienne 105 d’Évreux. Il appartient à Alain Feuillerat, invididu faisant l’objet d’une fiche S pour s’être radicalisé au contact de la mouvance jihadiste. Alain Feuillerat portait une tenue de combat avec la marque de l’État islamique.
 Il a été interpellé par la Gendarmerie.
 La fouille de son véhicule permit de découvrir des armes de poing ainsi qu’une vidéo d’allégeance à l’EI. 
