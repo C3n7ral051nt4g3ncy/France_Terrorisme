@@ -447,15 +447,22 @@ Dans le centre-ville, avant 17h40 dans une avenue proche du Stade olympique Yves
 
 Source: https://www.lemonde.fr/societe/article/2024/03/15/attentat-a-la-voiture-belier-contre-des-policiers-a-colombes-youssef-tihlah-condamne-a-24-ans-de-reclusion_6222244_3224.html#:~:text=Justice-,Attentat%20%C3%A0%20la%20voiture%20b%C3%A9lier%20contre%20des%20policiers%20%C3%A0%20Colombes,motards%20avaient%20%C3%A9t%C3%A9%20gri%C3%A8vement%20bless%C3%A9s.
 
-### 83. 25/09/2020
+### 83. 04/05/2020
+Dans la nuit du 4 au 5 mai 2017, peu après minuit, un véhicule suspect est repéré à proximité de la base aérienne 105 d’Évreux. Il appartient à Alain Feuillerat, invididu faisant l’objet d’une fiche S pour s’être radicalisé au contact de la mouvance jihadiste. Alain Feuillerat portait une tenue de combat avec la marque de l’État islamique.
+Il a été interpellé par la Gendarmerie.
+La fouille de son véhicule permit de découvrir des armes de poing ainsi qu’une vidéo d’allégeance à l’EI. 
+Au moment de son arrestation, il avait commencé à découper le premier grillage d’enceinte de l’emprise militaire, avant d’abandonner, a priori, son projet. En outre, il venait d’abandonner dans les champs un fusil à pompe, deux revolvers et trois couteaux de combat. Son intention était claire : il comptait s’en prendre aux militaires de la base d’Évreux, laquelle abrite notamment plusieurs unités spécialisées, comme le Groupe aérien mixte 56 « Vaucluse », qui soutient les opérations de la Direction générale de la sécurité extérieure (DGSE)
+
+
+### 84. 25/09/2020
 Le vendredi 25 septembre 2020, deux personnes sont grièvement blessées à l'arme blanche près des anciens locaux du journal Charlie Hebdo. Le parquet national antiterroriste ouvre une enquête pour « tentative d'assassinat en relation avec une entreprise terroriste, association de malfaiteurs terroriste criminelle ». Selon l'AFP citant des sources concordantes, l'assaillant de nationalité pakistanaise assurait « assumer son acte qu’il situe dans le contexte de la republication des caricatures (de Charlie Hebdo) qu’il n’a pas supportée ».
 
 Source: https://fr.wikipedia.org/wiki/Attaque_du_25_septembre_2020_%C3%A0_Paris
 
-### 84. 16/10/2020
+### 85. 16/10/2020
 Le 16 octobre 2020, un enseignant, Samuel Paty, est décapité, rue du Buisson Moineau à Éragny (Val-d'Oise) à proximité du collège de Conflans-Sainte-Honorine (Yvelines) dans lequel il enseignait, car il avait montré lors d'un cours sur la liberté d'expression des caricatures de Mahomet. Son assassin présumé (islamiste de nationalité russe) est abattu par la police
 
-### 85. 29/10/2020
+### 86. 29/10/2020
 Le 29 octobre, un Terroriste  tue trois chrétiens dont Nadine Devillers, Vincent Loquès, Simone Barreto Silva et en blesse plusieurs autres dans la basilique Notre-Dame-de-l'Assomption de Nice.
 L'assaillant, Brahim Aouissaoui, un Tunisien de 21 ans, est blessé par les tirs des policiers qu'il tentait d'attaquer, puis est interpellé et hospitalisé.
 
@@ -465,10 +472,10 @@ Source: https://www.francetvinfo.fr/economie/medias/charlie-hebdo/terrorisme-la-
 
 ## **2022**
 
-### 86. 02/03/2022: 
+### 87. 02/03/2022: 
 Le 2 mars 2022, Yvan Colonna, emprisonné à Arles, est étranglé dans la salle de sport de la prison par un islamiste pour avoir blasphémé Allah. Le parquet antiterroriste s'est autosaisi.
 
-### 87. 22/11/2022:
+### 88. 22/11/2022:
 Le 22 novembre 2022 à Annecy : Un jeune homme de 22 ans fiché S a attaqué un policier en criant Allah Akbar lors de sa garde à vue au commissariat d'Annecy, il a été mis en examen pour violences volontaires sur personne dépositaire de l'autorité publique, en relation avec une entreprise terroriste. Le parquet national antiterroriste est saisi.
 
 Source: https://www.francebleu.fr/infos/faits-divers-justice/annecy-un-jeune-homme-de-22-ans-radicalise-s-en-prend-a-un-policier-3536763
@@ -477,13 +484,13 @@ Source: https://www.francebleu.fr/infos/faits-divers-justice/annecy-un-jeune-hom
 
 ## **2023**
 
-### 88. 13/10/2023
+### 89. 13/10/2023
 Le 13 octobre : attaque au couteau du lycée Gambetta d'Arras
 L'assaillant qui a tué au couteau un professeur de français dans un lycée d'Arras avait 20 ans. D'origine tchétchène, il était né en Russie et était fiché S. Il avait d'ailleurs été contrôlé jeudi et faisait l'objet de surveillances physiques. Il a égorgé le professeur Dominique Bernard dans le lycée Gambetta. Il blesse trois autres personnes dont deux passent par un état d'extrême urgence à l'hôpital. Le parquet antiterroriste est saisi. L'individu a prêté allégeance à l'État islamique.
 
 Source: https://www.lemonde.fr/societe/article/2023/10/13/attaque-au-couteau-dans-un-lycee-d-arras-un-enseignant-tue-deux-blesses-graves_6194163_3224.html
 
-### 89. 02/12/2023
+### 90. 02/12/2023
 Le 2 décembre : attentat du pont de Bir-Hakeim
 Un individu fiché S pour islamisme radical a attaqué plusieurs passants non loin de la Tour Eiffel à Paris, faisant un mort et deux blessés. Déjà condamné en 2016 à quatre ans de prison pour un projet d’attentat avorté, il est sorti de prison en 2020.
 
@@ -493,18 +500,18 @@ Source: https://www.lejdd.fr/societe/attentat-de-bir-hakeim-le-suspect-franco-ir
 
 ## **2024**
 
-### 90. 16/07/2024
+### 91. 16/07/2024
 Ali Riza Polat, condamné pour complicité dans les attentats de janvier 2015 contre Charlie Hebdo et l’Hyper Cacher, aurait attaqué deux surveillants de la prison de Laon (Aisne) ce mardi 16 juillet 2024. L’un des agents a été légèrement blessé. Une enquête a été ouverte.
 
 Source: https://www.ouest-france.fr/societe/faits-divers/un-detenu-condamne-pour-les-attentats-de-2015-aurait-agresse-des-surveillants-a-la-prison-de-laon-b045bdd4-4375-11ef-a553-79592a855fb7
 
-### 91. 16/07/2024
+### 92. 16/07/2024
 Un homme connu pour sa radicalisation islamiste mis en examen et écroué pour l’agression d’un chauffeur de taxi près du Mans
 L’homme, qui sortait de prison, a été mis en examen pour enlèvement, séquestration, tentative d’assassinat, vol, le tout en relation avec une entreprise terroriste, et association de malfaiteurs terroriste criminelle.
 
 Source: https://www.lemonde.fr/societe/article/2024/07/23/un-suspect-radicalise-mis-en-examen-et-ecroue-pour-l-agression-d-un-chauffeur-de-taxi-pres-du-mans_6255997_3224.html
 
-### 92. 24/08/2024
+### 93. 24/08/2024
 La Grande-Motte : le suspect de l’attentat devant la synagogue a été interpellé après un échange de tirs avec la police à Nîmes
 Un Algérien de 33 ans a été arrêté par les policiers, notamment du RAID, à l’issue d’échanges de tirs, selon le PNAT. Quatre personnes sont actuellement en garde à vue dans cette affaire.
 
@@ -514,7 +521,7 @@ Source: https://www.lemonde.fr/societe/article/2024/08/25/la-grande-motte-le-sus
 
 ## **2025**
 
-### 93. 25/01/2025
+### 94. 25/01/2025
 Le 25 janvier : Attaque du 25 janvier 2025 à Apt
 Un individu fiché S pour islamisme radical a attaqué au couteau plusieurs personnes dans un centre commercial a Apt, faisant deux blessés. Le parquet national antiterroriste est saisi.
 
