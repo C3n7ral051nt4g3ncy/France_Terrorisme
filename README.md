@@ -523,7 +523,7 @@ Un individu fiché S pour islamisme radical a attaqué au couteau plusieurs pers
 
 Source: https://france3-regions.francetvinfo.fr/provence-alpes-cote-d-azur/vaucluse/attaque-au-couteau-blessures-interpellation-radicalisation-ce-que-l-on-sait-de-l-attaque-au-couteau-dans-un-supermarche-d-apt-3097525.html
 
-### 93. 22/02/2025
+### 94. 22/02/2025
 Attaque terroriste islamiste perpétrée le 22 février 2025 à Mulhouse par Brahim Abdessemed.
 L'attaque a fait un mort et au moins sept blessés dont deux graves. 
 L'assaillant a crié « Allah Akbar » en attaquant des policiers municipaux puis un civil s'interposant, a précisé le parquet.
