@@ -523,6 +523,18 @@ Un individu fiché S pour islamisme radical a attaqué au couteau plusieurs pers
 
 Source: https://france3-regions.francetvinfo.fr/provence-alpes-cote-d-azur/vaucluse/attaque-au-couteau-blessures-interpellation-radicalisation-ce-que-l-on-sait-de-l-attaque-au-couteau-dans-un-supermarche-d-apt-3097525.html
 
+### 93. 22/02/2025
+Attaque terroriste islamiste perpétrée le 22 février 2025 à Mulhouse par Brahim Abdessemed.
+L'attaque a fait un mort et au moins sept blessés dont deux graves. 
+L'assaillant a crié « Allah Akbar » en attaquant des policiers municipaux puis un civil s'interposant, a précisé le parquet.
+
+Suite à l'attaque , le terroriste a été transféré à Levallois-Perret au siège de la sous-direction antiterroriste (Sdat). 
+
+Brahim Abdessemed est né le 20 avril 1987 à Batna, (Algérie) de nationalité Algérienne.
+Déjà condamné en 2023 pour avoir appelé au djihad.
+Il est connu des services de renseignement pour terrorisme et radicalisation islamiste, son nom est inscrit dans le fichier des signalements pour la prévention de la radicalisation à caractère terroriste (FSPRT)
+Brahim Abdessemed était visé par une obligation de quitter le territoire français (OQTF).
+L’auteur de l’attaque habitait le quartier de Bourtzwiller, tout à la fois classé il y a quelques années « quartier de reconquête républicaine » et « territoire de lutte contre la radicalisation ».
 
 
 ---
